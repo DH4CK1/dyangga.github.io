@@ -1,4 +1,4 @@
 # dyangga.github.io
-My Portfolio Website
-<hr>
 # Coming Soon
+My PortFolio Website
+Contact: 085647728398
